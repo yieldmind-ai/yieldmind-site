@@ -32,7 +32,7 @@ YieldMind is currently raising capital in a limited private round.
 If you’re an early investor, DeFi strategist, or VC:
 
 📧 Contact us:  
-**yieldmind.project@gmail.com**
+**yieldmind.defi@gmail.com**
 
 ---
 
